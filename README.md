@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **AWS and Linux**
 
-- 📫 How to reach me **yatin03y@gmail.com**
+- 📫 How to reach me **yatinsindhi@gmail.com**
 
 - ⚡ Fun fact **I like to workout, watch documentaries, playing Chess**
 
